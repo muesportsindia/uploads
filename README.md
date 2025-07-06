@@ -9,3 +9,4 @@
 ![muesportslogo](https://github.com/user-attachments/assets/dec8c6fd-d452-400d-ae8e-8f5da73d9863)
 ![branding-muesports](https://github.com/user-attachments/assets/96d6ddc1-7546-46e6-baa5-0c408345fc6d)
 ![written-logo](https://github.com/user-attachments/assets/079bf97a-19cd-4001-9c53-3e2b0280d9b2)
+![live](https://github.com/user-attachments/assets/f8050e66-d24d-42e2-a6a4-cdb9970a3e55)
