@@ -11,3 +11,4 @@
 ![written-logo](https://github.com/user-attachments/assets/079bf97a-19cd-4001-9c53-3e2b0280d9b2)
 ![streaming](https://github.com/user-attachments/assets/3fae0983-841c-426e-9209-a25582374062)
 ![ranking](https://github.com/user-attachments/assets/648536cb-ce46-4f9d-bc05-86496a7f10a7)
+![banned](https://github.com/user-attachments/assets/bc013559-6d08-4400-9949-f90b9402e150)
