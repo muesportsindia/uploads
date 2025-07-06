@@ -14,3 +14,4 @@
 ![banned](https://github.com/user-attachments/assets/bc013559-6d08-4400-9949-f90b9402e150)
 ![social-media](https://github.com/user-attachments/assets/c5f6d3a8-8f03-4c22-b02a-b21f9bda7d86)
 ![24-hours-support](https://github.com/user-attachments/assets/ef18cd05-6171-4195-8ae7-89bb5e975652)
+![prize](https://github.com/user-attachments/assets/7d92081f-f7d6-487e-84ed-f60b1338c29f)
