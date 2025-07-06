@@ -16,3 +16,4 @@
 ![24-hours-support](https://github.com/user-attachments/assets/ef18cd05-6171-4195-8ae7-89bb5e975652)
 ![prize](https://github.com/user-attachments/assets/7d92081f-f7d6-487e-84ed-f60b1338c29f)
 ![trophy](https://github.com/user-attachments/assets/1a09a62f-9b79-43cd-b4e2-4e8f94267433)
+![team](https://github.com/user-attachments/assets/8df2c115-1fbf-4510-8168-8213a3995bd6)
