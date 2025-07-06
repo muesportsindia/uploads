@@ -13,3 +13,4 @@
 ![ranking](https://github.com/user-attachments/assets/648536cb-ce46-4f9d-bc05-86496a7f10a7)
 ![banned](https://github.com/user-attachments/assets/bc013559-6d08-4400-9949-f90b9402e150)
 ![social-media](https://github.com/user-attachments/assets/c5f6d3a8-8f03-4c22-b02a-b21f9bda7d86)
+![24-hours-support](https://github.com/user-attachments/assets/ef18cd05-6171-4195-8ae7-89bb5e975652)
