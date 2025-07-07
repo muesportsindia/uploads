@@ -17,3 +17,4 @@
 ![prize](https://github.com/user-attachments/assets/7d92081f-f7d6-487e-84ed-f60b1338c29f)
 ![trophy](https://github.com/user-attachments/assets/1a09a62f-9b79-43cd-b4e2-4e8f94267433)
 ![team](https://github.com/user-attachments/assets/8df2c115-1fbf-4510-8168-8213a3995bd6)
+<img width="329" alt="mock1" src="https://github.com/user-attachments/assets/b7506946-cfd0-4d2c-a7ac-5488fe3a01dd" />
