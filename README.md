@@ -18,3 +18,4 @@
 ![trophy](https://github.com/user-attachments/assets/1a09a62f-9b79-43cd-b4e2-4e8f94267433)
 ![team](https://github.com/user-attachments/assets/8df2c115-1fbf-4510-8168-8213a3995bd6)
 <img width="329" alt="mock1" src="https://github.com/user-attachments/assets/b7506946-cfd0-4d2c-a7ac-5488fe3a01dd" />
+<img width="938" alt="Screenshot 2025-07-07 at 11 12 17 PM" src="https://github.com/user-attachments/assets/3b6ff269-f152-4535-8c2c-08144f0bb1f3" />
