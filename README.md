@@ -19,3 +19,4 @@
 ![team](https://github.com/user-attachments/assets/8df2c115-1fbf-4510-8168-8213a3995bd6)
 <img width="329" alt="mock1" src="https://github.com/user-attachments/assets/b7506946-cfd0-4d2c-a7ac-5488fe3a01dd" />
 <img width="938" alt="Screenshot 2025-07-07 at 11 12 17 PM" src="https://github.com/user-attachments/assets/3b6ff269-f152-4535-8c2c-08144f0bb1f3" />
+![photo_2025-06-08 21 50 08](https://github.com/user-attachments/assets/cfe629ff-f08c-42b6-a1ef-daf9931f4a98)
