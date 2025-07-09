@@ -26,3 +26,4 @@
 ![1](https://github.com/user-attachments/assets/e771a89a-62df-41f9-a119-a0b3eeef4c7a)
 
 <img width="1424" alt="Screenshot 2025-07-09 at 4 07 41 PM" src="https://github.com/user-attachments/assets/169823e4-5fc9-466c-837c-8cfd5323a7e5" />
+<img width="1403" alt="Screenshot 2025-07-09 at 8 04 19 PM" src="https://github.com/user-attachments/assets/25140a85-c8b6-4eac-a3c3-473de1362faf" />
