@@ -23,7 +23,8 @@
 ![games](https://github.com/user-attachments/assets/d7599ea5-b63f-40af-8d79-334d79e152de)
 <img width="172" alt="Screenshot 2025-07-09 at 3 47 37 PM" src="https://github.com/user-attachments/assets/2f8e947d-9097-45a3-909a-f3fd8de6ff56" />
 <img width="578" alt="Screenshot 2025-07-09 at 4 02 34 PM" src="https://github.com/user-attachments/assets/5e5f9c9c-8a02-4d88-a015-7003c8d4cd44" />
-![1](https://github.com/user-attachments/assets/e771a89a-62df-41f9-a119-a0b3eeef4c7a)
+![1](https://github.com/user-attachments/assets/e771a89a-62df-41f9-a119-a0b3eeef4c7a)<img width="1433" alt="Screenshot 2025-07-10 at 3 33 28 PM" src="https://github.com/user-attachments/assets/9ec79717-0971-45bc-aa80-6d9fee857d13" />
+
 
 <img width="1424" alt="Screenshot 2025-07-09 at 4 07 41 PM" src="https://github.com/user-attachments/assets/169823e4-5fc9-466c-837c-8cfd5323a7e5" />
 <img width="1403" alt="Screenshot 2025-07-09 at 8 04 19 PM" src="https://github.com/user-attachments/assets/25140a85-c8b6-4eac-a3c3-473de1362faf" />
@@ -31,3 +32,4 @@
 
 <img width="289" alt="Screenshot 2025-07-10 at 3 19 24 PM" src="https://github.com/user-attachments/assets/e7cc464b-e879-4d9e-91e7-bd04840028b3" />
 
+<img width="1433" alt="Screenshot 2025-07-10 at 3 34 15 PM" src="https://github.com/user-attachments/assets/b16bcf34-e965-4dc1-a433-beb892f1ca8b" />
